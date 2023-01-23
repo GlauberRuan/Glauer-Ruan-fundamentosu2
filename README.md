@@ -1,0 +1,1 @@
+# Glauer-Ruan-fundamentosu2
